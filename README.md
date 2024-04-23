@@ -16,4 +16,9 @@ ___
 
 +  Genres: Animation / Action / Adventure / Comedy / Drama / Fantasy / Thriller
 
+
+
+
+Download here
+
 <img src="https://github.com/FaisaZadat/akame-ga-kill-gogoanime/blob/main/d.png"/>
